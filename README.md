@@ -1,4 +1,3 @@
-# bottybotty
 © PepinoFactory ALL RIGHTS RESERVED
 --------------------------------------------------------------
 
